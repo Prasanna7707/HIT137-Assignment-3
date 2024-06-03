@@ -13,3 +13,5 @@ The game has following features :
 
 Please have a look and let me know if any changes to be made.
 yes we did it guys.
+hi guys
+everything is there as planned. looks good.
